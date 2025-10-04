@@ -1,3 +1,2 @@
-EFETIVIDADE DAS POLÍTICAS REDISTRIBUTIVAS:
- TRIBUTOS DIRETOS E ISENÇÃO DE TRIBUTOS SOBRE ITENS ESSENCIAIS VS. TRANSFERÊNCIAS DIRETAS
+Efetividade das políticas redistributivas: tributos diretos e isenção de tributos sobre itens essenciais vs. transferências diretas
 
